@@ -12,3 +12,19 @@ Iron Man is a 2008 American superhero film based on the Marvel Comics character 
 * Perfectionist
 * Honest
 * Womanizer
+
+## Iron mans quote
+
+Not only the characteristics of a character are important, but also the words they've said. 
+
+> "You know, it's moments like these when I realize what a superhero I am."
+
+> “I am Iron Man.”
+
+> "Genius, billionaire, playboy, philanthropist."
+
+> “We have a Hulk.”
+
+> “If there’s one thing I’ve proven it’s that you can count on me to pleasure myself.”
+
+> “Have you ever tried shawarma… I don’t know what it is, but I wanna try it.”
