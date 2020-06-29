@@ -13,14 +13,18 @@ Iron Man is a 2008 American superhero film based on the Marvel Comics character 
 * Honest
 * Womanizer
 
-> "You know, it's moments like these when I realize what a superhero I am."
+## Iron mans quote
 
-> “I am Iron Man.”
+Not only the characteristics of a character are important, but also the words they've said. 
 
-> "Genius, billionaire, playboy, philanthropist."
+> You know, it's moments like these when I realize what a superhero I am.
 
-> “We have a Hulk.”
+> I am Iron Man.
 
-> “If there’s one thing I’ve proven it’s that you can count on me to pleasure myself.”
+> Genius, billionaire, playboy, philanthropist.
 
-> “Have you ever tried shawarma… I don’t know what it is, but I wanna try it.”
+> We have a Hulk.
+
+> If theres one thing Ive proven its that you can count on me to pleasure myself.
+
+> Have you ever tried shawarma… I dont know what it is, but I wanna try it.
