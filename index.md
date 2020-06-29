@@ -13,10 +13,6 @@ Iron Man is a 2008 American superhero film based on the Marvel Comics character 
 * Honest
 * Womanizer
 
-## Iron mans quote
-
-Not only the characteristics of a character are important, but also the words they've said. 
-
 > "You know, it's moments like these when I realize what a superhero I am."
 
 > “I am Iron Man.”
