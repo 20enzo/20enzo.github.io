@@ -28,3 +28,5 @@ Not only the characteristics of a character are important, but also the words th
 > If theres one thing Ive proven its that you can count on me to pleasure myself.
 
 > Have you ever tried shawarma… I dont know what it is, but I wanna try it.
+
+<img src="http://pngimg.com/uploads/ironman/ironman_PNG33.png" />
